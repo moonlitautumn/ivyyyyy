@@ -1,0 +1,2 @@
+- used to be a basist but stopped playing after she married will because accord to him it would "distract her". 
+- her relationship with him was always abusive but despite her friends constabt warnings she never really saw it as such and just thought of him as a smart and rich man.

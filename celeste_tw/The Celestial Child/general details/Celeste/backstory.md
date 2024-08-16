@@ -1,0 +1,4 @@
+- their brother protected them from their parents and is the only person Celeste really plays games and talks to, they think of him highly despite how he has treated them previously, learns to forgive them before the recital but them their father dies.
+- tends to self isolate, listen to music, dissociate, daydream ~~and cut~~ as a way to cope and escape reality, this might come back to bite them in the back later.
+- likes and dislikes playing the bass because being pressured takes away their will to play it.
+- Wants to be friends with Ebony but feels as if she wouldnt want to be friends with someone that hides who they are and thats mentally Ill like them, and that it would be cruel on their part to let her get close and "hurt herself". 

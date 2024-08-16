@@ -1,0 +1,4 @@
+- was hit in his childhood and sees it as something *normal* parents do to teach their children.
+- wants his child to be perfect and for others to see that in them, so when he sees them struggling to play the after being forced to play for hours he hits and yells at them, because he sees it as lazyness and "imperfection", none of which his child should have a slight hint of during the recital.
+- doesnt care about Vixy being perfect because he is his *eldest son*.
+- his name has a double meaning.

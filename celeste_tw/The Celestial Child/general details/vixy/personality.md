@@ -1,0 +1,7 @@
+- ambivert
+- enfp-t
+- doesnt know how to process his emotions, so he lets them out in some form of anger (namely towards Celeste).
+- tries to forget and deny his problems even happened instead of confront them, but unlike Celeste he has diferent albeit unhealthy ways of expressing his emotions.
+- generally refuses to get help and doesnt want to "bother others with his problems".
+- believes that "nobody would want to be friends with someone who is suffering" but still tries to be authentic, just not in a serious way, he tends to joke about his problems when he cant just deny and forget them.
+- undiagnosed depression and anxiety

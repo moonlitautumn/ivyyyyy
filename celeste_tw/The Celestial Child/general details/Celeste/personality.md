@@ -1,0 +1,9 @@
+- constantly tired
+- murderous tendencies (does not do the murdering though)
+- tries not to care and ignore their emotions as a way to protect themself from having to feel them. (but not nescessarity forget it!)
+- intp-t
+- comes off as a cold person
+- innatentive adhd
+- undiagnosed depression and anxiety(before and after recital) 
+- really suicidal
+- scared of change

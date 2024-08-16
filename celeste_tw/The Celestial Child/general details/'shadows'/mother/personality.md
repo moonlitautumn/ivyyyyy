@@ -1,0 +1,3 @@
+- sweet but brainwashed, thinks what she is doing is right and only notices how she was abusive after the death of her husband.
+- narcisistic tendencies.
+- sometimes a manipulator.
